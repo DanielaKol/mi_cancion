@@ -7,4 +7,4 @@ TE seguí y rescribiste mi futuro
 es aquí mi único lugar seguro 
 Sorprendido espiando
 El lobo escapó aullando y
-Es mordido por el mago del Siam
+Es mordido por el mago del Chaco
